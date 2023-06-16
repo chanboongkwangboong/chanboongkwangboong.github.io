@@ -1,1 +1,1 @@
-# chanboongkwangboong.github.io
+# 찬붕이 광붕이의 모바일 청첩장입니다.
